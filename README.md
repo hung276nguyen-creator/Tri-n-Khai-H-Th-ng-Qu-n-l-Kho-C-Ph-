@@ -1,1 +1,0 @@
-# Tri-n-Khai-H-Th-ng-Qu-n-l-Kho-C-Ph-
